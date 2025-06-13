@@ -1,1 +1,1 @@
-# Thank You for your purchase!
+# Thank You!
