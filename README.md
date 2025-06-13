@@ -1,1 +1,1 @@
-# thank-you-page
+# Thank You for your purchase!
